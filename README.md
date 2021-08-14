@@ -1,1 +1,1 @@
-# LoR-Slosher.github.io\LoR-Diary
+# LoR-Slosher.github.io
